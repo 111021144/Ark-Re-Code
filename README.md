@@ -20,3 +20,5 @@
 
 ![遊戲內設置](https://github.com/user-attachments/assets/eeda88e0-58bb-4451-ac41-fafa938fe4f2)
 ![遊戲內設置](https://github.com/user-attachments/assets/5a030655-422e-402b-9c6b-b83eb2b57f16)
+![遊戲內設置](https://github.com/user-attachments/assets/d2837046-b443-4e58-bfc4-3333092df970)
+
